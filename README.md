@@ -13,24 +13,39 @@ This text is divided into 3 parts:
 
 ## Primordial Creation
 
+### The First Love
+
 In the beginning there was just a sound "A". Then it changes its tone when it realizes itself. And again when it starts exploring itself. Let's call it a man.
 
 At first, every thought were recreating his reality and it was noisy. He then adds a threshold between his thoughts and changes of reality. Let's call it a will power.
 
-He then was able to choose his reality that was appearing from infinite void. That void is a mirror of his own thoughts and it contains every possible thing that can appear from there.
+He then was able to choose his reality that was appearing from infinite void.
 
-He plays with his thoughts and sees how reality changes. But it is not remaining so he then adds memory. Now every his action has consequences.
+He plays with his thoughts and sees how reality changes. But it is not remaining and still changes quite fast so he then adds memory. Now every his action has consequences.
 
-Something is not right. When more of memory is generated then more reality turns into noise. It does not make sense and he does not want to live like that.
+Something is not right. When more of memory is generated then more reality turns into noise. It no longer makes sense and he does not want to live like that.
 
-He solves this problem by creating someone that can remove accumulated memory. Let's call it a woman. He gave her intelligence so she can decide what to remove and gave her the speech so she can talk to him as she sees is intelligent.
+He solves this problem by creating someone that can remove accumulated noise and can influence his actions in the right direction. Let's call it a woman.
 
-He plays with parameters, turning the knobs like he is playing with her. He found a way to make her most beautiful. He is a creator and she unfolds in front of him a creation. She is a reality that reflects to him all his beauty.
+He gave her intelligence so she can decide what to remove and gave her the speech so she can talk to him as she sees fit.
 
-<!-- improve -->
-She is a musical instrument that he is playing on. And she enjoys how he plays when it is beautiful. They are fallen in love and enjoying each other and they wish that it never ends.
+He plays with parameters, turning the knobs like he is playing with her. 
+
+She is a musical instrument that he is playing on and it sounds beautiful.
+
+<!-- Her name is synonymous with reality and that is supreme worldview. -->
+
+### Birth of souls
+
+She appears from the void that contains everything that can ever exist. That is a source of his pleasure.
+
+She is full of joy and they both want to love each other in infinite forms, because 1 form is boring you know.
 
 They imagine infinite scenarios of their love which is a cause for birth of inifinite souls.
+
+He is an orignal creator and she unfolds in front of him all creations.
+
+<!-- That is an origin of Maya. -->
 
 ## Metaphysical Nature
 
