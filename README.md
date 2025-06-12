@@ -17,21 +17,28 @@ This text is divided into 3 parts:
 
 In the beginning there was just a sound "A". Then it changes its tone when it realizes itself. And again when it starts exploring itself. Let's call it a man.
 
-At first, every thought were recreating his reality and it was noisy. He then adds a threshold between his thoughts and changes of reality. Let's call it a will power.
+At first, every thought were recreating his reality and it was noisy. He then added a threshold between his thoughts and changes of reality. He was able to choose his reality that was appearing from infinite void. Let's call it a will power.
 
-He then was able to choose his reality that was appearing from infinite void.
+He plays with his thoughts and sees how reality changes. It was not remaining and still was changing fast. So he added a memory. Now every his action has consequences.
 
-He plays with his thoughts and sees how reality changes. But it is not remaining and still changes quite fast so he then adds memory. Now every his action has consequences.
+Something is wrong. When more of memory is generated then more reality become like a noise. It no longer makes sense and he does not want to live like that.
 
-Something is not right. When more of memory is generated then more reality turns into noise. It no longer makes sense and he does not want to live like that.
+He solves this problem by creating someone that removes accumulated memory. Now no matter what he does, it was all dissappearing into infinite void. Let's call it a woman.
 
-He solves this problem by creating someone that can remove accumulated noise and can influence his actions in the right direction. Let's call it a woman.
+It was boring at first, so he gave her intelligence so she can remove only noise and keep a beautiful memory. It is much better but most of his actions still just a noise and reality seems so small to what it could be.
 
-He gave her intelligence so she can decide what to remove and gave her the speech so she can talk to him as she sees fit.
+Then he gave her ability to influence his actions into right direction so there is much more beautiful memory. That power is pleasure and he gets it when he sees reality as beautiful and full of mystery.
 
-He plays with parameters, turning the knobs like he is playing with her. 
+Beauty arise when he acts in a beautiful manner and mystery is a natural state of infinite void. He plays with parameters, turning the knobs like he is playing with her. You can now understand why her body looks the way it is.
 
-She is a musical instrument that he is playing on and it sounds beautiful.
+<!-- She controls his speech according to his will power or choice -->
+<!-- He gave her the speech so she can talk to him with sweet when he is right and bad when he is wrong. -->
+
+<!-- She is a musical instrument that he is playing on and it sounds beautiful. -->
+
+<!-- infinite orgasm -->
+<!-- She expands in infinite forms -->
+<!-- He sees all her glory -->
 
 <!-- Her name is synonymous with reality and that is supreme worldview. -->
 
