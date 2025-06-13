@@ -25,22 +25,23 @@ Something is wrong. When more of memory is generated then more reality become li
 
 He solves this problem by creating someone that removes accumulated memory. Now no matter what he does, it was all dissappearing into infinite void. Let's call it a woman.
 
-It was boring at first, so he gave her intelligence so she can remove only noise and keep a beautiful memory. It is much better but most of his actions still just a noise and reality seems so small to what it could be.
+It was boring at first, so he gave her wisdom to remove only noise and to keep a beautiful memory. But still reality seems so small to what it could be because most of his actions are still just a noise.
 
-Then he gave her ability to influence his actions into right direction so there is much more beautiful memory. That power is pleasure and he gets it when he sees reality as beautiful and full of mystery.
+He gave her control on how fast are his actions. And he gave her ability to influence his will into right direction. She now has an intuition of him and can predict what he will do. It is now expanding to infinite beauty.
 
-Beauty arise when he acts in a beautiful manner and mystery is a natural state of infinite void. He plays with parameters, turning the knobs like he is playing with her. You can now understand why her body looks the way it is.
+He plays with parameters, turning the knobs like he is playing with her. All of her glories is a reflection of infinite truth.
 
-<!-- She controls his speech according to his will power or choice -->
-<!-- He gave her the speech so she can talk to him with sweet when he is right and bad when he is wrong. -->
+He feels pleasure because reality is beautiful and she is full of joy because he understands her fully.
 
 <!-- She is a musical instrument that he is playing on and it sounds beautiful. -->
 
+<!-- She controls his speech according to his will power or choice -->
+
+<!-- Pain arises from experience of noise -->
+<!-- All feelings are experienced by soul and are not located inside body -->
+<!-- Material body is just a covering -->
 <!-- infinite orgasm -->
 <!-- She expands in infinite forms -->
-<!-- He sees all her glory -->
-
-<!-- Her name is synonymous with reality and that is supreme worldview. -->
 
 ### Birth of souls
 
