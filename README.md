@@ -17,41 +17,40 @@ This text is divided into 3 parts:
 
 In the beginning there was just a sound "A". Then it changes its tone when it realizes itself. And again when it starts exploring itself. Let's call it a man.
 
-At first, every thought were recreating his reality and it was noisy. He then added a threshold between his thoughts and changes of reality. He was able to choose his reality that was appearing from infinite void. Let's call it a will power.
+At first, every his thoughts were all about himself and it was like a vortex that is twisting around itself. It was noisy. Then on the other side he saw the infinite void. Let's call it a woman.
 
-He plays with his thoughts and sees how reality changes. It was not remaining and still was changing fast. So he added a memory. Now every his action has consequences.
+When he was gazing at her, full of mystery and the unknown, she was reflecting to him all his thoughts. Then he was responding back to the reflection and so on till everything sets in motion. She became his reality.
 
-Something is wrong. When more of memory is generated then more reality become like a noise. It no longer makes sense and he does not want to live like that.
+The more he interacted with her then more of memory was generating and over time it was becoming noisy. He contains entire existence in his mind, rembember that? He then discovered that she can remove a memory and bring it back to void.
 
-He solves this problem by creating someone that removes accumulated memory. Now no matter what he does, it was all dissappearing into infinite void. Let's call it a woman.
+He was playing with her, turning parameters and knobs till he found her as most perfect and beautiful. That woman cares about beauty of existence just like him and she is deciding when to remove a bad memory.
 
-It was boring at first, so he gave her wisdom to remove only noise and to keep a beautiful memory. But still reality seems so small to what it could be because most of his actions are still just a noise.
+When he focused too much on her as she is a source of his pleasure, he was turning existence into unbearable noise. She was keeping that noisy memory until he learnt his lesson. She can influence his will into right direction and decide how fast he is.
 
-He gave her control on how fast are his actions. And he gave her ability to influence his will into right direction. She now has an intuition of him and can predict what he will do. It is now expanding to infinite beauty.
+That sweet balance when reality becomes magical and fluid, that is love. It never really has to stop and it keeps on going for eternity. Because she is removing only bad memory and keeping beautiful ones, they both experience infinite ever expanding bliss.
 
-He plays with parameters, turning the knobs like he is playing with her. All of her glories is a reflection of infinite truth.
-
-He feels pleasure because reality is beautiful and she is full of joy because he understands her fully.
+He always has to fight for her, fight against his own noise and desires. That is masculine energy. She influences his energy to bring him back to love. That is feminine energy. And together they are God.
 
 <!-- She is a musical instrument that he is playing on and it sounds beautiful. -->
 
-<!-- She controls his speech according to his will power or choice -->
+<!-- He always fighting for her -->
+<!-- If he won't fight, existence will turn into noise -->
 
 <!-- Pain arises from experience of noise -->
-<!-- All feelings are experienced by soul and are not located inside body -->
+<!-- All feelings are experiences of soul are not located inside material body -->
 <!-- Material body is just a covering -->
-<!-- infinite orgasm -->
-<!-- She expands in infinite forms -->
 
 ### Birth of souls
 
-She appears from the void that contains everything that can ever exist. That is a source of his pleasure.
+She expands to infinite realities while keeping all her glories.
+
+<!-- She appears from the void that contains everything that can ever exist. That is a source of his pleasure.
 
 She is full of joy and they both want to love each other in infinite forms, because 1 form is boring you know.
 
 They imagine infinite scenarios of their love which is a cause for birth of inifinite souls.
 
-He is an orignal creator and she unfolds in front of him all creations.
+He is an orignal creator and she unfolds in front of him all creations. -->
 
 <!-- That is an origin of Maya. -->
 
