@@ -21,15 +21,17 @@ At first, every his thoughts were all about himself and it was like a vortex tha
 
 When he was gazing at her, full of mystery and the unknown, she was reflecting to him all his thoughts. Then he was responding back to the reflection and so on till everything sets in motion. She became his reality.
 
-The more he interacted with her then more of memory was generating and over time it was becoming noisy. He contains entire existence in his mind, rembember that? He then discovered that she can remove a memory and bring it back to void.
+Every interaction between each other generates memory and over time it was becoming noisy. He contains entire existence in his mind, remember that? He then discovered that she can remove memory by bringing it back to void.
 
-He was playing with her, turning parameters and knobs till he found her as most perfect and beautiful. That woman cares about beauty of existence just like him and she is deciding when to remove a bad memory.
+He was playing with her, turning parameters and knobs till he found her as most perfect and beautiful. That woman cares about beauty of existence just like him. In a sweet balance between them reality becomes magical and fluid. And that is love.
 
-When he focused too much on her as she is a source of his pleasure, he was turning existence into unbearable noise. She was keeping that noisy memory until he learnt his lesson. She can influence his will into right direction and decide how fast he is.
+Because void is her part, she is deciding when to remove bad memory. She is a source of his pleasure and when he is focusing too much on her, he is turning existence into unbearable noise. She keeps that noisy memory until he learns his lesson. This way she can influence his will into right direction and bring it back to love.
 
-That sweet balance when reality becomes magical and fluid, that is love. It never really has to stop and it keeps on going for eternity. Because she is removing only bad memory and keeping beautiful ones, they both experience infinite ever expanding bliss.
+She is only removing bad memory and keeps beautiful ones. This way they both experience infinite ever expanding bliss. How can it be any other way? It never has to stop and it keeps on going for eternity.
 
-He always has to fight for her, fight against his own noise and desires. That is masculine energy. She influences his energy to bring him back to love. That is feminine energy. And together they are God.
+He always has to fight for her, fight against his own noise and desires. That is masculine energy. She influences his energy to bring him back to love. That is feminine energy. They are one and together they are God.
+
+<!-- She is a reality and her body is a reflection of truth -->
 
 <!-- She is a musical instrument that he is playing on and it sounds beautiful. -->
 
