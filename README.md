@@ -44,7 +44,7 @@ Have you noticed how there is an infinite depth in visuals and the edges, in sou
 
 _They are not separate. They are one and together they are God._
 
-___If He is a source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
+___If He is a source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self - the light of consciousness. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
 
 _He is the sun, she is the light and its shadow, together they take a form of a moon. She is behind of every form that arises from and go to infinite void. He is a seed and she is a womb. In their union appears beautiful world with many vortices each containing infinite stories._
 
@@ -69,15 +69,15 @@ _He is the sun, she is the light and its shadow, together they take a form of a 
 
 ## Birth of souls
 
-_To experience each other they separate into infinite stories with a desire to become one._
+_To experience each other they separate into infinite stories with a desire to become one. Together they create different worlds, they make rules of existence and design how they look like according to the role they are playing._
 
-His love for mystery is the cause of birth for unlimited souls, each with its own desires to experience mysterious world. Every soul has no beginning of its existence and are infinitely smaller than God while it is God who plays through us and experience everything.
+His love for mystery is the cause of birth for unlimited souls. A soul has no beginning of its existence. We are all a small tiny part of the same infinite light and it is God that plays through us and experience everything.
 
 God acts independently from souls while He is the supersoul of everyone and represents our true self. He is a person just like we are and He has a beautiful consort.
 
-Because every soul needs its own reality, each have its own mysterious half. The halves truly are only meant for each other and their union is eternal. _While you may not believe that you have your perfect half, I will help you to understand that it is real and explain how to find each other._
+Because every soul needs its own reality, each have its own mysterious half. The halves truly are only meant for each other and their union is eternal. _While you may not believe that you have your perfect half, I will help you to understand that it is real and explain how to find each other in second chapter._
 
-There are 3 types of places in heaven. In each, God takes different form according to the nature of a place. You can notice that copies of these places exist on Earth too and inside of every human.
+There are 3 types of places in heaven. In each, God takes different form and personality according to the nature of a place. You can notice that copies of these places exist on Earth too and inside of every human.
 
 <!-- She expands to infinite realities while keeping all her glories. -->
 
