@@ -34,7 +34,7 @@ Maybe she should be fully predictable or be limited by fixed ideas? Now existenc
 
 Because void is her part, she is removing his created mess. When he is trying to create the world not in alignment with reality, he is turning existence into unbearable noise. She keeps that noisy memory until he understands the lesson. This way she can influence his will into right direction and keep it on love.
 
-He was playing with her, turning parameters and knobs till he found her and himself as most beautiful. That woman cares about beauty of existence just like him. In a sweet balance between his knowing and her mystery reality becomes magical and fluid. It is called wisdom and her mystery is love.
+He was playing with her, turning parameters and knobs of his knowledge till he found existence as most fun and beautiful. In a sweet balance between his knowing and her mystery reality becomes magical and fluid. It is called wisdom and her mystery is love.
 
 She only removes bad memory and keeps beautiful ones. This way they experience infinite ever expanding bliss. How can it be any other way? 
 
@@ -71,19 +71,27 @@ _He is the sun, she is the light and its shadow, together they take a form of a 
 
 _To experience each other they separate into infinite stories with a desire to become one. Together they create different worlds, they make rules of existence and design how they look like according to the role they are playing._
 
-His love for mystery is the cause of birth for unlimited souls. We are all a small tiny part of the same infinite light and it is God that plays through us and experience everything.
+His love for mystery is the cause of birth for unlimited souls. Every soul is eternal and always existed. We are all a small tiny part of the same infinite light and it is God that plays through us and experience everything.
 
 God acts independently from souls while He is the supersoul of everyone and represents our true self. He is a person just like we are and He has a beautiful consort.
 
 Because every soul needs its own reality, each have its own mysterious half. The halves truly are only meant for each other and their union is eternal. _While you may not believe that you have your perfect half, I will help you to understand that it is real and explain how to find each other in second chapter._
 
-___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world, it is still love. _Second chapter will explore this idea further._
+___If everything is a perfect reflection, how God, His consort and other souls are perceived as independent actors?___ God separates His original mysterious Half as black Goddess and places Her different form as His consort. While He places His different form as a husband of black Goddess to balance existence. It is still remains fair but without being seemingly similar.
 
-_There is Heaven that is full of light and no shadows. There is Cosmos where everything is possible and any desire can be fulfilled but shadows exist there too._
+<!-- ___What do you mean that it is fair as I don't perceive it this way?___  -->
+
+_There is Heaven that is full of light and no shadows. There is black Cosmos where any desire can be fulfilled but shadows exist there too._
 
 ## Heaven
 
-There are 3 types of places in Heaven. In each, God takes different form according to the nature of a place. You can notice that copies of these places exist on Earth too and inside of every human.
+The white part of existence where only good things exist. All the noisy parts of reality does not exist there. These includes full spectrum of negative emotions. Only bliss and no suffering.
+
+It is in some way limited to only beautiful things and does not include raw reality and all the possibilites of experiences. Most souls choose to reside in Heaven.
+
+There are 3 places in Heaven: _Garden, City and Mountain_. In each, God takes different form according to the nature of a place. 
+
+_Please note that no place is higher than the other. Each is necessary for existence of others._
 
 <!-- She expands to infinite realities while keeping all her glories. -->
 
@@ -95,11 +103,23 @@ There are 3 types of places in Heaven. In each, God takes different form accordi
 
 ### The Garden
 
+A place where everyone is like playful children and equal to each other. God places Himself as equal to others and everybody considers Him as a friend.
 
+Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs.
+
+If a soul no longer wants to stay in this perfect place, it can choose a different one by having a desire. It will then go to a different world together with its half.
+
+___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world. It is still love. _Second chapter will explore this idea further._
 
 ### The City
 
+When you want a more active and richer existence, you move to the city. God here takes a form of a king that rules over the kingdom and everybody gives praises to Him as an equal response for the richness that He gives for the souls.
+
+He is sometimes depicted with 2 consorts here. Let me explain, ...
+
 ### The Mountain
+
+
 
 ## Cosmos
 
