@@ -50,23 +50,6 @@ _He is the sun, she is the light and its shadow, together they take a form of a 
 
 <img src="img/fluid.png" width="880" />
 
-<!-- Because if you actually care about reality, you will understand her. -->
-
-<!-- It never stops and it keeps on going for eternity. -->
-
-<!-- He always has to fight for her, fight against his own desires. That is masculine energy. He is also a source of will. She is reality herself that gives vision with infinite depth, speech and other feelings. That is feminine energy. -->
-
-<!-- She is a reality and her body is a reflection of truth -->
-
-<!-- She is a musical instrument that he is playing on and it sounds beautiful. -->
-
-<!-- He always fighting for her -->
-<!-- If he won't fight, existence will turn into noise -->
-
-<!-- Pain arises from experience of noise -->
-<!-- All feelings are experiences of soul are not located inside material body -->
-<!-- Material body is just a covering -->
-
 ## Birth of souls
 
 _To experience each other they separate into infinite stories with a desire to become one. Together they create different worlds, they make rules of existence and design how they look like according to the role they are playing._
@@ -77,49 +60,58 @@ God acts independently from souls while He is the supersoul of everyone and repr
 
 Because every soul needs its own reality, each have its own mysterious half. The halves truly are only meant for each other and their union is eternal. _While you may not believe that you have your perfect half, I will help you to understand that it is real and explain how to find each other in second chapter._
 
-___If everything is a perfect reflection, how God, His consort and other souls are perceived as independent actors?___ God separates His original mysterious Half as black Goddess and places Her different form as His consort. While He places His different form as a husband of black Goddess to balance existence. It is still remains fair but without being seemingly similar.
+___If everything is a perfect reflection, how God, His consort and other souls are perceived as independent actors?___ God separates His original mysterious Half with His another form and places Her another form as His consort. It still remains fair but without everyone being seen as same.
 
-<!-- ___What do you mean that it is fair as I don't perceive it this way?___  -->
+<!-- ___Why I don't perceive the world as perfect, it is full of suffering for me?___  -->
 
-_There is Heaven that is full of light and no shadows. There is black Cosmos where any desire can be fulfilled but shadows exist there too._
+_There is Heaven that is full of light and no shadows. There is mysterious Cosmos where any desire can be fulfilled but shadows exist there too._
 
 ## Heaven
 
-The white part of existence where only good things exist. All the noisy parts of reality does not exist there. These includes full spectrum of negative emotions. Only bliss and no suffering.
+The white part of existence where only good things exist. All the noisy parts of reality does not exist there - negative emotions, spicy and other interesting tastes that arise from mixing with noise. Only bliss and no suffering.
 
 It is in some way limited to only beautiful things and does not include raw reality and all the possibilites of experiences. Most souls choose to reside in Heaven.
 
-There are 3 places in Heaven: _Garden, City and Mountain_. In each, God takes different form according to the nature of a place. 
+There are 3 places in Heaven: _the Garden, City and Mountain_. In each, God takes different form according to the nature of a place. 
 
-_Please note that no place is higher than the other. Each is necessary for existence of others._
-
-<!-- She expands to infinite realities while keeping all her glories. -->
-
-<!-- She is full of joy and they both want to love each other in infinite forms, because 1 form is boring you know. -->
-
-<!-- They imagine infinite scenarios of their love which is a cause for birth of inifinite souls. -->
-
-<!-- That is an origin of Maya. -->
+_Please note that no place is higher than the other. Each is necessary for existence of others. You take one away, others will be reduced in glory._
 
 ### The Garden
 
-A place where everyone is like playful children and equal to each other. God places Himself as equal to others and everybody considers Him as a friend.
+A place where everyone is like playful children and equal to each other. God also places Himself as equal and everybody considers Him as a friend.
 
 Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs.
 
-If a soul no longer wants to stay in this perfect place, it can choose a different one by having a desire. It will then go to a different world together with its half.
+If a soul no longer wants to stay in this wonderful place, it can choose a different one by having a desire. It will then go to a different world together with its half.
 
-___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world. It is still love. _Second chapter will explore this idea further._
+___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world. Both desires complement each other and it is still love. _Second chapter will explore this idea further._
 
 ### The City
 
 When you want a more active and richer existence, you move to the city. God here takes a form of a king that rules over the kingdom and everybody gives praises to Him as an equal response for the richness that He gives for the souls.
 
-He is sometimes depicted with 2 consorts here. Let me explain, ...
+He is sometimes depicted with 2 consorts here - let me explain this idea. The mysterious half can be divided into 2 parts:
+
+1. Will - represents direction and experience of ecstasy - love. Intuition.
+2. Action - acting force, should be aligned with will that points at love.
+
+A soul can choose to move to the City with having its mysterious side be splitted in halves - 2 wives, one is full of empathy and another is full of activities. It has more challenges and different experience of reality. I would guess that 1% of women and 0.5% of men on Earth are destined to be in this configuration. _Second chapter will help you to understand if you are meant to be with 2 wives and explain the differences between them._
+
+___So all men in the City are with 2 wives and why is it allowed?___ No, most are in classic configuration 1 on 1, only a small percent have choosen 2 wives. Man and Woman is 1 soul. Female part represents energy and it can be split into 2 parts without breaking balance. If man desires more women, his desire becomes unbalanced and the soul goes to the Cosmos to fulfill it and learn lesson from it.
+
+As you can guess, this place looks like a city with no limits of its scale. It has an energy of adulthood, living in a big city.
+
+When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
 ### The Mountain
 
+A beatiful landscapes with forests, rivers and mountains. It has calm energy to cool souls down from activities. It helps them to see things more clearly. God takes a form of the Father and Mother.
 
+<!-- This form of God -->
+
+When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage by ceasing sinful activities and learning its lesson, and then return back to the City, Garden or stay in the Mountain.
+
+If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled.
 
 ## Cosmos
 
