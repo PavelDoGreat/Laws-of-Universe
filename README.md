@@ -95,26 +95,28 @@ He is sometimes depicted with 2 consorts here - let me explain this idea. The my
 1. Will - represents direction and experience of ecstasy - love. Intuition.
 2. Action - acting force, should be aligned with will that points at love.
 
-A soul can choose to move to the City with having its mysterious side be splitted in halves - 2 wives, one is full of empathy and another is full of activities. It has more challenges and different experience of reality. I would guess that 1% of women and 0.5% of men on Earth are destined to be in this configuration. _Second chapter will help you to understand if you are meant to be with 2 wives and explain the differences between them._
+A soul can choose to move to the City with having its mysterious side be splitted in halves - 2 wives, one is full of empathy and another is full of activities. It has more challenges and different experience of reality. I would guess that 1% of women and 0.5% of men on Earth are destined to be in this configuration. _Second chapter will help you to understand if you are meant to be with 2 wives and explain these 2 feminine energies._
 
-___So all men in the City are with 2 wives and why is it allowed?___ No, most are in classic configuration 1 on 1, only a small percent have choosen 2 wives. Man and Woman is 1 soul. Female part represents energy and it can be split into 2 parts without breaking balance. If man desires more women, his desire becomes unbalanced and the soul goes to the Cosmos to fulfill it and learn lesson from it.
+___So all men in the City are with 2 wives and why is it allowed?___ No, most are in a classic configuration 1 on 1. Only a small percent chooses 2 wives. Man and Woman is 1 soul. Female part represents energy and it can be split into 2 parts without breaking world's balance. If man desires even more women, his desire becomes unbalanced and the soul goes to the Cosmos to fulfill it and learn lesson from it.
 
-As you can guess, this place looks like a city with no limits of its scale. It has an energy of adulthood, living in a big city.
+As you can guess, this place looks like a city with no limits of its scale. It has an energy of adulthood - lots of energy of living in a big city.
 
 When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
 ### The Mountain
 
-A beatiful landscapes with forests, rivers and mountains. It has calm energy to cool souls down from activities. It helps them to see things more clearly. God takes a form of the Father and Mother.
+A beatiful landscapes with forests, rivers and mountains. It has calm energy to cool souls down from activities and to help them to see things more clearly.
 
-<!-- This form of God -->
+God takes a form of the Father. Every soul now has to grow up and take responsibilites for its activities. This is a place when a soul can see that everything is a reflection of itself.
 
-When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage by ceasing sinful activities and learning its lesson, and then return back to the City, Garden or stay in the Mountain.
+When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage here and then return to the City, Garden or stay in the Mountain.
 
-If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled.
+If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled and lessons be learned.
 
 ## Cosmos
 
 # Practices with Reality
+
+_A legendary second chapter._
 
 # Laws of Civilization
