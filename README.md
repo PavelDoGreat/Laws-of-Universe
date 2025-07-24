@@ -32,9 +32,9 @@ As he is a source of knowledge, if he tried to imagine the world without taking 
 
 Maybe she should be fully predictable or be limited by fixed ideas? Now existence is so boring. What if he has control over her? Now she wants to control him too. He cannot create his safe perfect world in whatever way he wants. He has to accept her, and in doing so, he also accepts himself.
 
-Because void is her part, she is removing his created mess. When he is trying to create the world not in alignment with reality, he is turning existence into unbearable noise. She keeps that noisy memory until he understands the lesson. This way she can influence his will into right direction and keep it on love.
-
 He was playing with her, turning parameters and knobs of his knowledge till he found existence as most fun and beautiful. In a sweet balance between his knowing and her mystery reality becomes magical and fluid. It is called wisdom and her mystery is love.
+
+Because void is her part, she is removing his created mess. When he is trying to create the world not in alignment with reality, he is turning existence into unbearable noise. She keeps that noisy memory until he understands the lesson. This way she can influence his will into right direction and keep it on love.
 
 She only removes bad memory and keeps beautiful ones. This way they experience infinite ever expanding bliss. How can it be any other way? 
 
@@ -46,7 +46,7 @@ _They are not separate. They are one and together they are God._
 
 ___If He is the source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence, - just to break your mind further. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self - the light of consciousness. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
 
-_He is the sun, she is the light and its shadow, together they take a form of a moon. She is behind of every form that arises from and go to infinite void. He is a seed and she is a womb. In their union appears beautiful world with many vortices each containing infinite stories._
+_He is the sun, She is the light and its shadow, together they take a form of a moon. She is behind of every form that arises from and go to infinite void. He is a seed and She is a womb. In their union appears beautiful world with many vortices each containing infinite stories._
 
 <img src="img/fluid.png" width="880" />
 
@@ -68,7 +68,7 @@ _There is Heaven that is full of light and no shadows. There is mysterious Cosmo
 
 ## Heaven
 
-The white part of existence where only good things exist. All the noisy parts of reality does not exist there - negative emotions, spicy and other interesting tastes that arise from mixing with noise. Only bliss and no suffering.
+The white part of existence where only good things exist. All the noisy parts of reality does not exist there - negative emotions, spicy and other interesting tastes that arise from mixing perfection with noise. Only bliss and no suffering.
 
 It is in some way limited to only beautiful things and does not include raw reality and all the possibilites of experiences. Most souls choose to reside in Heaven.
 
@@ -86,20 +86,22 @@ If a soul no longer wants to stay in this wonderful place, it can choose a diffe
 
 ___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world. Both desires complement each other and it is still love. _Second chapter will explore this idea further._
 
+<!-- _From a small flower in a garden_ -->
+
 ### The City
 
 When you want a more active and richer existence, you move to the city. God here takes a form of a king that rules over the kingdom and everybody gives praises to Him as an equal response for the richness that He gives for the souls.
 
 He is sometimes depicted with 2 consorts here - let me explain this idea. The mysterious half can be divided into 2 parts:
 
-1. Will - represents direction and experience of ecstasy - love. Intuition.
-2. Action - acting force, should be aligned with will that points at love.
+1. Will - direction, experience of ecstasy - love. Intuition.
+2. Action - acting force, should be aligned with loving will.
 
 A soul can choose to move to the City with having its mysterious side be splitted in halves - 2 wives, one is full of empathy and another is full of activities. It has more challenges and different experience of reality. I would guess that 1% of women and 0.5% of men on Earth are destined to be in this configuration. _Second chapter will help you to understand if you are meant to be with 2 wives and explain these 2 feminine energies._
 
-___So all men in the City are with 2 wives and why is it allowed?___ No, most are in a classic configuration 1 on 1. Only a small percent chooses 2 wives. Man and Woman is 1 soul. Female part represents energy and it can be split into 2 parts without breaking world's balance. If man desires even more women, his desire becomes unbalanced and the soul goes to the Cosmos to fulfill it and learn lesson from it.
+___Why is it allowed for men to be with 2 wives?___ Man and Woman is 1 soul. Feminine energy can be split into 2 parts without breaking world's balance and it is still would be 1 soul. Only a small percent chooses to be with 2 wives. If man desires even more women, his desire becomes unbalanced and a soul should go to the Cosmos to fulfill it and learn lesson from it.
 
-As you can guess, this place looks like a city with no limits of its scale. It has an energy of adulthood - lots of energy of living in a big city.
+<!-- There are innumerable amount of cities that looks like planets. Each is unique and has a city center where King with Queen resides. -->
 
 When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
@@ -107,13 +109,18 @@ When a soul is having too much activities or start desiring things that are not 
 
 A beatiful landscapes with forests, rivers and mountains. It has calm energy to cool souls down from activities and to help them to see things more clearly.
 
-God takes a form of the Father. Every soul now has to grow up and take responsibilites for its activities. This is a place when a soul can see that everything is a reflection of itself.
+God takes a form of the Father with the Mother of all souls. This is a place when a soul can see that everything is a reflection of itself - _in the Garden and City this knowledge is hidden as it breaks the sweetness and fun of these places._
 
 When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage here and then return to the City, Garden or stay in the Mountain.
 
+___If every actions and desires arises from love, how can there be sins?___ A complete union of masculine and feminine part has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state not in the right way, it is remembered in God's memory as noise and a soul should take a responsibility for clearing it. It is done this way as it prevents more souls from desiring this power. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
+
 If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled and lessons be learned.
 
+_In a deep forests there is darkness that is full of scary and exciting adventures. A place where a man can become manly and a woman can show all her power with no limits._
+
 ## Cosmos
+
 
 # Practices with Reality
 
