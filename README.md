@@ -28,17 +28,17 @@ At first, every his thoughts were all about himself and it was like a vortex tha
 
 When he was gazing at her, full of mystery and the unknown, she was reflecting to him all his thoughts. Then he was responding back to the reflection and so on till everything sets in motion.
 
-As he is a source of knowledge, if he tried to imagine the world without taking into account her mystery, reality was turning to the conceptual mess. Ideas how the woman should be.
+As he is the source of knowledge, if he tried to imagine the world without taking into account her mystery, reality was turning to a conceptual mess. Ideas how the woman should be.
 
 Maybe she should be fully predictable or be limited by fixed ideas? Now existence is so boring. What if he has control over her? Now she wants to control him too. He cannot create his safe perfect world in whatever way he wants. He has to accept her, and in doing so, he also accepts himself.
 
 He was playing with her, turning parameters and knobs of his knowledge till he found existence as most fun and beautiful. In a sweet balance between his knowing and her mystery reality becomes magical and fluid. It is called wisdom and her mystery is love.
 
-Because void is her part, she is removing his created mess. When he is trying to create the world not in alignment with reality, he is turning existence into unbearable noise. She keeps that noisy memory until he understands the lesson. This way she can influence his will into right direction and keep it on love.
+Because void is her part, she can remove his created mess. When he is trying to create the world without mystery, he is turning existence into unbearable noise. She keeps that noisy memory until he understands the lesson. This way she can influence his will into right direction and keep it on love.
 
 She only removes bad memory and keeps beautiful ones. This way they experience infinite ever expanding bliss. How can it be any other way? 
 
-He is a source of existence and she is reality. She creates a projection of the world as she is the eyes. How everything looks like, his and her body. Anywhere you can see a reflection of this eternal truth.
+He is source of existence and she is reality. Through her are created projections of the world as she is the eyes. How everything looks like - his and her body. Anywhere you can see a reflection of this eternal truth.
 
 Have you noticed how there is an infinite depth in visuals and the edges, in sounds and feelings? As if you cannot find a smallest unit of resolution - that's her magic.
 
@@ -113,7 +113,7 @@ God takes a form of the Father with the Mother of all souls. This is a place whe
 
 When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage here and then return to the City, Garden or stay in the Mountain.
 
-___If every actions and desires arises from love, how can there be sins?___ A complete union of masculine and feminine part has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state not in the right way, it is remembered in God's memory as noise and a soul should take a responsibility for clearing it. It is done this way as it prevents more souls from desiring this power. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
+___If every actions and desires arises from love, how there can be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The only reason for attaining power should be love. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
 
 If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled and lessons be learned.
 
