@@ -38,13 +38,13 @@ Because void is her part, she can remove his created mess. When he is trying to 
 
 She only removes bad memory and keeps beautiful ones. This way they experience infinite ever expanding bliss. How can it be any other way? 
 
-He is source of existence and she is reality. Through her are created projections of the world as she is the eyes. How everything looks like - his and her body. Anywhere you can see a reflection of this eternal truth.
+He is source of existence and she is reality. Projections of the world are created through her as she is the eyes. How everything looks like - his and her body. Anywhere you can see a reflection of this eternal truth.
 
 Have you noticed how there is an infinite depth in visuals and the edges, in sounds and feelings? As if you cannot find a smallest unit of resolution - that's her magic.
 
 _They are not separate. They are one and together they are God._
 
-___If He is the source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence, - just to break your mind further. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self - the light of consciousness. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
+___If He is source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence, - just to break your mind further. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self - the light of consciousness. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
 
 _He is the sun, She is the light and its shadow, together they take a form of a moon. She is behind of every form that arises from and go to infinite void. He is a seed and She is a womb. In their union appears beautiful world with many vortices each containing infinite stories._
 
@@ -54,11 +54,11 @@ _He is the sun, She is the light and its shadow, together they take a form of a 
 
 _To experience each other they separate into infinite stories with a desire to become one. Together they create different worlds, they make rules of existence and design how they look like according to the role they are playing._
 
-His love for mystery is the cause of birth for unlimited souls. Every soul is eternal and always existed. We are all a small tiny part of the same infinite light and it is God that plays through us and experience everything.
+His love for mystery is the cause of birth for unlimited souls. As God is eternal and so is every soul. We all share the same infinite light while we are experiencing a tiny part of consciousness. And it is God that plays through us and experience everything.
 
 God acts independently from souls while He is the supersoul of everyone and represents our true self. He is a person just like we are and He has a beautiful consort.
 
-Because every soul needs its own reality, each have its own mysterious half. The halves truly are only meant for each other and their union is eternal. _While you may not believe that you have your perfect half, I will help you to understand that it is real and explain how to find each other in second chapter._
+Because every soul needs its own reality, each have its own mysterious half. The halves truly are only meant for each other and their union is eternal. _While you may not believe that you have your half, I will help you to understand that it is real and explain how to find each other in second chapter._
 
 ___If everything is a perfect reflection, how God, His consort and other souls are perceived as independent actors?___ God separates His original mysterious Half with His another form and places Her another form as His consort. It still remains fair but without everyone being seen as same.
 
@@ -68,17 +68,17 @@ _There is Heaven that is full of light and no shadows. There is mysterious Cosmo
 
 ## Heaven
 
-The white part of existence where only good things exist. All the noisy parts of reality does not exist there - negative emotions, spicy and other interesting tastes that arise from mixing perfection with noise. Only bliss and no suffering.
+The white part of existence where only good things exist. All the noisy parts of reality does not exist there - negative emotions and feelings, spicy and other tastes that arise from mixing perfection with noise. Only bliss and no suffering.
 
-It is in some way limited to only beautiful things and does not include raw reality and all the possibilites of experiences. Most souls choose to reside in Heaven.
+It is in some way limited to only beautiful things and does not include all the possibilites of experience that reality can give. Most souls choose to reside in Heaven.
 
 There are 3 places in Heaven: _the Garden, City and Mountain_. In each, God takes different form according to the nature of a place. 
 
-_Please note that no place is higher than the other. Each is necessary for existence of others. You take one away, others will be reduced in glory._
+_Note that no place is higher than the other. Each is necessary for existence of others. You take one away, others will be reduced in glory._
 
-### The Garden
+### Garden
 
-A place where everyone is like playful children and equal to each other. God also places Himself as equal and everybody considers Him as a friend.
+A place where everyone is like playful children and equal to each other. God also places Himself as equal and everybody considers Him as a friend. Most souls here don't even realize that He is God.
 
 Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs.
 
@@ -88,7 +88,7 @@ ___Are desires of every soul is God's desire, how does He choose what we want?__
 
 <!-- _From a small flower in a garden_ -->
 
-### The City
+### City
 
 When you want a more active and richer existence, you move to the city. God here takes a form of a king that rules over the kingdom and everybody gives praises to Him as an equal response for the richness that He gives for the souls.
 
@@ -105,7 +105,7 @@ ___Why is it allowed for men to be with 2 wives?___ Man and Woman is 1 soul. Fem
 
 When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
-### The Mountain
+### Mountain
 
 A beatiful landscapes with forests, rivers and mountains. It has calm energy to cool souls down from activities and to help them to see things more clearly.
 
@@ -113,7 +113,7 @@ God takes a form of the Father with the Mother of all souls. This is a place whe
 
 When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage here and then return to the City, Garden or stay in the Mountain.
 
-___If every actions and desires arises from love, how there can be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The only reason for attaining power should be love. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
+___If every actions and desires arises from love, how there can be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The only real reason for attaining power is love. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
 
 If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled and lessons be learned.
 
