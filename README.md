@@ -30,7 +30,7 @@ When he was gazing at her, full of mystery and the unknown, she was reflecting t
 
 As he is the source of knowledge, if he tried to imagine the world without taking into account her mystery, reality was turning to a conceptual mess. Ideas how the woman should be.
 
-Maybe she should be fully predictable or be limited by fixed ideas? Now existence is so boring. What if he has control over her? Now she wants to control him too. He cannot create his safe perfect world in whatever way he wants. He has to accept her, and in doing so, he also accepts himself.
+Maybe she should be fully predictable or be limited by fixed ideas? Now existence is so boring and she plays with him like a robot. What if he has control over her? Now she wants to control him too. He cannot create his safe perfect world in whatever way he wants. He has to accept her, and in doing so, he also accepts himself.
 
 He was playing with her, turning parameters and knobs of his knowledge till he found existence as most fun and beautiful. In a sweet balance between his knowing and her mystery reality becomes magical and fluid. It is called wisdom and her mystery is love.
 
@@ -78,7 +78,7 @@ _Note that no place is higher than the other. Each is necessary for existence of
 
 ### Garden
 
-A place where everyone is like playful children and equal to each other. God also places Himself as equal and everybody considers Him as a friend. Most souls here don't even realize that He is God.
+A place where everyone is playful children and equal to each other. God also places Himself as equal and everybody considers Him as a friend.
 
 Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs.
 
@@ -86,7 +86,7 @@ If a soul no longer wants to stay in this wonderful place, it can choose a diffe
 
 ___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world. Both desires complement each other and it is still love. _Second chapter will explore this idea further._
 
-<!-- _From a small flower in a garden_ -->
+_From a small flower in a garden you can see a marvelous city. And it's one flower from infinite many._
 
 ### City
 
@@ -105,6 +105,8 @@ ___Why is it allowed for men to be with 2 wives?___ Man and Woman is 1 soul. Fem
 
 When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
+_The loving couple goes outside of a big energetic city for a beautiful calming landscapes to make their head clear and their intentions pure._
+
 ### Mountain
 
 A beatiful landscapes with forests, rivers and mountains. It has calm energy to cool souls down from activities and to help them to see things more clearly.
@@ -113,13 +115,14 @@ God takes a form of the Father with the Mother of all souls. This is a place whe
 
 When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage here and then return to the City, Garden or stay in the Mountain.
 
-___If every actions and desires arises from love, how there can be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The only real reason for attaining power is love. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
+___If every actions and desires arises from love, how there can be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The real power is in returning to your true self. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
 
-If a soul continues with its unbalanced desire, it should go to the Cosmos where any desire can be fulfilled and lessons be learned.
-
-_In a deep forests there is darkness that is full of scary and exciting adventures. A place where a man can become manly and a woman can show all her power with no limits._
+_In a deep forests there is darkness that is full of scary and exciting adventures. A place where a man can become manly and a woman can show all her power._
 
 ## Cosmos
+
+The black part of existence where any desire can be fulfilled. You can experience reality with no limits but you have to be careful with your sins or you will fall to lower realms.
+
 
 
 # Practices with Reality
