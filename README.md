@@ -82,7 +82,9 @@ A place where everyone is playful children and equal to each other. God also pla
 
 <!-- no desire -->
 
-Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs. There is so much sweetness as when you just fall in love and no time exist between both of you - future is always perceived perfect.
+Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs.
+
+<!-- There is so much sweetness as when you just fall in love and no time exist between both of you - future is always perceived perfect. -->
 
 If a soul no longer wants to stay in this wonderful place, it can choose a different one by having a desire. It will then go to a different world together with its half.
 
@@ -94,7 +96,7 @@ _Inside a small flower in the garden you can see a marvelous city. And that's ju
 
 When you want a more active and richer existence, you move to the city. God here takes a form of a king with a queen that rule over the kingdom and everybody gives praises to Them as an equal response for the richness that They give for the souls.
 
-He is sometimes appears with 2 consorts here - let me explain this idea. The mysterious half can be divided into 2 parts:
+He sometimes appears with 2 consorts here - let me explain this idea. The mysterious half can be divided into 2 parts:
 
 1. Will - direction, experience of ecstasy - love. Intuition.
 2. Action - acting force, should be aligned with loving will.
@@ -103,7 +105,7 @@ A soul can choose to move to the City with having its mysterious side be splitte
 
 ___Why is it allowed for men to be with 2 wives?___ Man and Woman is 1 soul. Feminine energy can be split into 2 parts without breaking world's balance and it is still would be 1 soul. Only a small percent chooses to be with 2 wives. If man desires even more women, his desire becomes unbalanced and a soul should go to the Cosmos to fulfill it and learn lesson from it.
 
-<!-- There are innumerable amount of cities that looks like planets. Each is unique and has a city center where King with Queen resides. -->
+<!-- There appears hierarchy -->
 
 When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
@@ -125,7 +127,15 @@ _In deep forests there is darkness that is full of scary and exciting adventures
 
 The black part of existence where any desire can be fulfilled. You can experience reality with no limits but you have to be careful what desires you choose or you may fall to lower realms.
 
-___Why God is allowing Cosmos to exist as there are sufferings and hell?___ Allowing everything to exist and to be experienced is an important aspect of God which proves that there is freedom of choice. Without it existence for every souls in all worlds no longer feels sacred. It is a celebration that you are not a clog in a machine while you are free to choose to be one. Of course there are consequences for your desires because we are living in one reality. _Second chapter will help you to understand how to choose desires right - it requires understanding Her._
+There appears time and with it - the future and the past. As there are no limitations, time is used as God's power to keep order and let all desires to play nicely with each other. All of them being fulfilled on time without any problems.
+
+___Why God is allowing Cosmos to exist as there are sufferings and hell?___ God's acceptance of yourself also includes freedom of choice. Reality would be so limited if you had put chains on her. It is a celebration that you are not a clog in a machine even though you are free to be one. _Second chapter will explain how to choose desires right - it requires understanding Her._
+
+Because God is allowing freedom of desires, He takes responsibility for keeping the order - so that souls with bad desires does not break destiny of ones with good desires. The Cosmos is designed in a way that every soul will inevitably return to Heaven - even if the soul becomes completely lost in its sins. When jumping into any desire, you want to be sure that you will always get yourself out.
+
+
+
+## One Universe
 
 # Practices with Reality
 
