@@ -80,24 +80,26 @@ _Note that no place is higher than the other. Each is necessary for existence of
 
 A place where everyone is playful children and equal to each other. God also places Himself as equal and everybody considers Him as a friend.
 
-Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs.
+<!-- no desire -->
+
+Everything is balanced here, not too much and not too little activities. Life here is simple like in childhood with lots of jokes and funs. There is so much sweetness as when you just fall in love and no time exist between both of you - future is always perceived perfect.
 
 If a soul no longer wants to stay in this wonderful place, it can choose a different one by having a desire. It will then go to a different world together with its half.
 
 ___Are desires of every soul is God's desire, how does He choose what we want?___ The answer is similar to a free will question. Because God is always focusing on mysterious love, every desires arise from there and they are all love in nature. Even desires that are "bad" and wants to destroy reality has an opposite ones that wants to play a hero to save the world. Both desires complement each other and it is still love. _Second chapter will explore this idea further._
 
-_From a small flower in a garden you can see a marvelous city. And it's one flower from infinite many._
+_Inside a small flower in the garden you can see a marvelous city. And that's just one flower from infinite many._
 
 ### City
 
-When you want a more active and richer existence, you move to the city. God here takes a form of a king that rules over the kingdom and everybody gives praises to Him as an equal response for the richness that He gives for the souls.
+When you want a more active and richer existence, you move to the city. God here takes a form of a king with a queen that rule over the kingdom and everybody gives praises to Them as an equal response for the richness that They give for the souls.
 
-He is sometimes depicted with 2 consorts here - let me explain this idea. The mysterious half can be divided into 2 parts:
+He is sometimes appears with 2 consorts here - let me explain this idea. The mysterious half can be divided into 2 parts:
 
 1. Will - direction, experience of ecstasy - love. Intuition.
 2. Action - acting force, should be aligned with loving will.
 
-A soul can choose to move to the City with having its mysterious side be splitted in halves - 2 wives, one is full of empathy and another is full of activities. It has more challenges and different experience of reality. I would guess that 1% of women and 0.5% of men on Earth are destined to be in this configuration. _Second chapter will help you to understand if you are meant to be with 2 wives and explain these 2 feminine energies._
+A soul can choose to move to the City with having its mysterious side be splitted in halves - 2 wives, one is full of empathy and another is full of activities. It has more challenges and different experience of reality. ___I would guess that 1% of women and 0.5% of men on Earth are destined to be in this configuration.___ _Second chapter will help you to understand if you are meant to be with 2 wives and explain these 2 feminine energies._
 
 ___Why is it allowed for men to be with 2 wives?___ Man and Woman is 1 soul. Feminine energy can be split into 2 parts without breaking world's balance and it is still would be 1 soul. Only a small percent chooses to be with 2 wives. If man desires even more women, his desire becomes unbalanced and a soul should go to the Cosmos to fulfill it and learn lesson from it.
 
@@ -105,7 +107,7 @@ ___Why is it allowed for men to be with 2 wives?___ Man and Woman is 1 soul. Fem
 
 When a soul is having too much activities or start desiring things that are not in nature of Heaven, it should move to the Mountain.
 
-_The loving couple goes outside of a big energetic city for a beautiful calming landscapes to make their head clear and their intentions pure._
+_The loving couple goes outside of a big energetic city for a beautiful calming landscapes to make their head and intentions clear._
 
 ### Mountain
 
@@ -115,15 +117,15 @@ God takes a form of the Father with the Mother of all souls. This is a place whe
 
 When a soul participates in sinful activities, it accumulates it storage of sins that grows like long hairs. It can burn this storage here and then return to the City, Garden or stay in the Mountain.
 
-___If every actions and desires arises from love, how there can be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The real power is in returning to your true self. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
+___If every actions and desires arises from love, how can there be sins?___ A complete union of masculine and feminine has a lot of power so it is natural for the soul to want it - this is like becoming God again. Some souls may want that absolute power to be constant and so they go to the Cosmos to reach it and learn a lesson. When a soul is reaching this state in unbalanced way, it is remembered in God's memory as noise and a soul should take responsibility for clearing it. The real power is in returning to your true self. _In second chapter I will explain how to reach that power in a right way - it takes a lot of effort and complete honesty with yourself._
 
-_In a deep forests there is darkness that is full of scary and exciting adventures. A place where a man can become manly and a woman can show all her power._
+_In deep forests there is darkness that is full of scary and exciting adventures. A place where a man can become manly and a woman can show all her power._
 
 ## Cosmos
 
-The black part of existence where any desire can be fulfilled. You can experience reality with no limits but you have to be careful with your sins or you will fall to lower realms.
+The black part of existence where any desire can be fulfilled. You can experience reality with no limits but you have to be careful what desires you choose or you may fall to lower realms.
 
-
+___Why God is allowing Cosmos to exist as there are sufferings and hell?___ Allowing everything to exist and to be experienced is an important aspect of God which proves that there is freedom of choice. Without it existence for every souls in all worlds no longer feels sacred. It is a celebration that you are not a clog in a machine while you are free to choose to be one. Of course there are consequences for your desires because we are living in one reality. _Second chapter will help you to understand how to choose desires right - it requires understanding Her._
 
 # Practices with Reality
 
