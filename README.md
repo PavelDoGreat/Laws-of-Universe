@@ -38,13 +38,13 @@ Because void is her part, she can remove his created mess. When he is trying to 
 
 She only removes bad memory and keeps beautiful ones. This way they experience infinite ever expanding bliss. How can it be any other way? 
 
-He is source of existence and she is reality. Projections of the world are created through her as she is the eyes. How everything looks like - his and her body. Anywhere you can see a reflection of this eternal truth.
+He is the source of existence and she is reality. Projections of the world are created through her as she is the eyes. How everything looks like - his and her body. Anywhere you can see a reflection of this eternal truth.
 
 Have you noticed how there is an infinite depth in visuals and the edges, in sounds and feelings? As if you cannot find a smallest unit of resolution - that's her magic.
 
 _They are not separate. They are one and together they are God._
 
-___If He is source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence, - just to break your mind further. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self - the light of consciousness. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
+___If He is the source of all, does He have free will or everything deterministic?___ The answer to this question does not make sense for the mind as God is always focusing on mystery - love. There never been the actual beginning of existence, - just to break your mind further. If He tried to wrap it into limiting concept, there won't be love and He no longer would accept His true self - the light of consciousness. ___In second chapter you can find practices with reality to bring yourself back to love and bliss.___
 
 _He is the sun, She is the light and its shadow, together they take a form of a moon. She is behind of every form that arises from and go to infinite void. He is a seed and She is a womb. In their union appears beautiful world with many vortices each containing infinite stories._
 
@@ -127,13 +127,15 @@ _In deep forests there is darkness that is full of scary and exciting adventures
 
 The black part of existence where any desire can be fulfilled. You can experience reality with no limits but you have to be careful what desires you choose or you may fall to lower realms.
 
-There appears time and with it - the future and the past. As there are no limitations, time is used as God's power to keep order and let all desires to play nicely with each other. All of them being fulfilled on time without any problems.
+There appears time and with it - future and past. As there are no limitations, time is used as God's power to keep order and let all desires to play nicely with each other. All of them being fulfilled on time without any problems.
 
-___Why God is allowing Cosmos to exist as there are sufferings and hell?___ God's acceptance of yourself also includes freedom of choice. Reality would be so limited if you had put chains on her. It is a celebration that you are not a clog in a machine even though you are free to be one. _Second chapter will explain how to choose desires right - it requires understanding Her._
+___Does time not exist in Heaven?___ Consciousness is the infinite energy that always moves and it does not need a concept of time. Heaven is designed in a way that every soul exist there in now without thinking about past and future - that is a state of our true self without the mind. From the point of view of Heaven, everything that happens in Cosmos flies fast like zaps of thoughts in neurons of the mind. From Cosmos you can only see a white effulgence and God can appear as non moving.
 
 Because God is allowing freedom of desires, He takes responsibility for keeping the order - so that souls with bad desires does not break destiny of ones with good desires. The Cosmos is designed in a way that every soul will inevitably return to Heaven - even if the soul becomes completely lost in its sins. When jumping into any desire, you want to be sure that you will always get yourself out.
 
+___Why God is allowing Cosmos to exist as there are sufferings and hell?___ God's acceptance of yourself also includes freedom of experiences. Reality would be so limited if you had put chains on her. It is a celebration that you are not a clog in a machine even though you are free to be one. _Second chapter will explain how to choose desires right - it requires understanding Her._
 
+_There is the constant powerful source of matter at the center of Cosmos - that is God's seed of desires. Scentists call it Big Bang._
 
 ## One Universe
 
